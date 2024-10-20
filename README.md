@@ -1,1 +1,1 @@
-![Krzysztof Wiśniewski](https://github.com/KaWis17/KaWis17/assets/33382483/231128a1-f69e-487b-9316-509ca45d3cd6)
+![CV](https://github.com/user-attachments/assets/8f586fa1-f945-4c8b-b8c0-5dad7f3c4cf8)
